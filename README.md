@@ -1,3 +1,3 @@
 citypedal
 =========
-~~Krzysiu~~ Lorek wącha Jana
+~~Krzysiu~~ Lorek wącha pana Jana
